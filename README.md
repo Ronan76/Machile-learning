@@ -1,2 +1,2 @@
 #Machine-learning
-Lucas leroy est un gros ...............
+Lucas leroy est un petit con
